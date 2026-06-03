@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-**Ramsey Kayed Hammad** — Independent vehicle valuation reports, certified appraisal documents, and cloud‑based total‑loss analytics.
+**Ramsey Kayed Hammad** — Independent vehicle valuation reports, appraisal documents, and cloud‑based total‑loss analytics.
 
 ---
 
